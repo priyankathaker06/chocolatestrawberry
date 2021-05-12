@@ -1,0 +1,1 @@
+This is a quick and easy recipe to make a healthy dessert, chocolate covered strawberries!
